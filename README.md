@@ -1,3 +1,3 @@
-# Why not?
+# 🦄✨ Why not?
 
-🦄✨ You shall not pass to my own world.
+You shall not pass to my own world.
